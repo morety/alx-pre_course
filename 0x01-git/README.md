@@ -1,1 +1,2 @@
-welcome
+ It’s time to code!
+
