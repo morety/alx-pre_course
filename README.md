@@ -1,1 +1,1 @@
-Never gonna give you up!
+The future is bright
